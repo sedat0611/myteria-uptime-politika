@@ -1,0 +1,1 @@
+# myteria-uptime-politika
